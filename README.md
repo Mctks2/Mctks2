@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Thiago Souza 😁
+## Bem-vindo(a) ao perfil do Thiago Souza 😎
 
  <div>
    <a href="https://github.com/Mctks2">
